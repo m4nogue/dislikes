@@ -8,3 +8,5 @@
 - mashed potatoes??
 - kylie minogue haters
 - the abba fandom :(
+
+![image](https://github.com/user-attachments/assets/fd4b18ff-b447-41e2-a9d3-6347abe4e3fb)
